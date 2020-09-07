@@ -1,1 +1,1 @@
-# DUMMY TEXT
+Intykbayeva Kamila 190107079
